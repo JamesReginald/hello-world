@@ -2,4 +2,4 @@
 
 Hi Humans!
 
-JamesRiginald here
+JamesReginald here
